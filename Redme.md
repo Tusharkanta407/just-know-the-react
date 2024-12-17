@@ -1,0 +1,1 @@
+ok here some things i will write about the book:
